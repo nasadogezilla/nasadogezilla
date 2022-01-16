@@ -1,0 +1,1 @@
+Our mission is to give a chance to real investors who still could not get a chance in blockchain. For this goal we aim to build real payment centers in many centers of the world in order to provide money transfers with Nasadogezilla with low commission.
